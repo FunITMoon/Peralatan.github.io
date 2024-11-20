@@ -1,1 +1,0 @@
-# Peralatan.github.io
